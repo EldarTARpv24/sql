@@ -21,3 +21,4 @@
 
 ![image](https://github.com/user-attachments/assets/69d87f77-4efe-4cd9-9c18-37b9096cd91b)  запомнить
 
+![image](https://github.com/user-attachments/assets/c6b7f7e9-beb9-4a7e-95f5-90078b61bafe)
